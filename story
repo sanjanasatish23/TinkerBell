@@ -1,1 +1,1 @@
-Tinker Bell was a fairy with mgical powers. Peter Pan was a mischevious boy who snuck on to Captain Hook's ship.
+Tinker Bell was a fairy with mgical powers. Peter Pan was a mischevious boy who snuck on to Captain Hook's ship. Captain Hook was mad at Peter Pan. Peter Pan tried to sneak away from Captain Hook after he found out he was a pirate.
